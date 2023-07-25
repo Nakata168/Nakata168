@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nakata168
+- 👀 I’m interested in love, book, annimal
+- 🌱 I’m currently learning electric
+- 💞️ I’m looking to collaborate on Gitcoin
+- 📫 How to reach me Email: kenshinnguyen2710@gmail.com
